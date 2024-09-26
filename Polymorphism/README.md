@@ -1,1 +1,0 @@
-C:\Users\Diah\Pictures\Screenshots
